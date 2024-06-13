@@ -1,1 +1,1 @@
-Cognorise Infotech - Data analytic Internship
+Cognorise Infotech - Data analytics Internship
